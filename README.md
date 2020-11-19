@@ -1,4 +1,6 @@
 # PKUAutoSubmit (modified)
+我是傻逼没错
+收拾心情重新做人
 
 **UPDATE 2020/10/18**
 
